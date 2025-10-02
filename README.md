@@ -1,0 +1,1 @@
+# gendatakh4ocr
